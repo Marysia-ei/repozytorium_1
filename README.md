@@ -1,1 +1,1 @@
-Metody numeryczne są trudne :(
+Strona internetowa
